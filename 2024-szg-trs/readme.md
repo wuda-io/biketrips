@@ -5,6 +5,8 @@
 - Strecke: 385 km, 11 km zug
 - Höhenmeter: 2200 hm
 
+---
+
 ## Umsetzung
 
 - Start: 2024
