@@ -4,13 +4,15 @@
 
 - Strecke: 630 km
 - Höhenmeter: 3600 hm
-- geplanter start: 2026-05-01
-- geplantes ende: ca. 2026-05-06
+- geplanter start: 2026-05-04
+- geplantes ende: ca. 2026-05-10
 
 ### Route
 
 ca. 100km / tag => ca. 6 tage
 100km/d machbar, weil es hat sogar geregnet bei sbg - wien
+
+TODO: Split route into parts
 
 ### Wetter
 
