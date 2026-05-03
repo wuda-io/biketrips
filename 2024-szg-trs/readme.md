@@ -9,9 +9,9 @@
 
 ## Umsetzung
 
-- Start: 2024
-- Ende: 2024
-- Dauer:
+- Start: 2024-08-14
+- Ende: 2024-08-18
+- Dauer: P4D
 
 ## Recap
 
