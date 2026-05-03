@@ -12,9 +12,9 @@
 ca. 100km / tag => ca. 6 tage
 100km/d machbar, weil es hat sogar geregnet bei sbg - wien
 
-<img src="./img/Screenshot 2026-05-03 at 11.35.03.png" alt="" width="400px">
+<img src="./img/plan/Screenshot 2026-05-03 at 11.35.03.png" alt="" width="400px">
 
-Grob (optimistisch)
+#### Grob (sehr optimistisch)
 
 - 0. Wien, AT
 - 1. Keszthely, HU (218 km)
@@ -25,27 +25,46 @@ Grob (optimistisch)
 
 TODO: Feinplanung mit den kleineren Orten, falls Navi ausfällt
 
-Rückreise? tbd
+#### Feinplanung
+
+- Wien
+  - 1
+  - 2
+  - 3
+  - 4
+  - 5
+  - 6
+  - 7
+  - 8
+  - 9
+- Keszthely
+
+#### Rückreise
+
+TBD (am Weg überlegen)
 
 ### Wetter
 
 wetter vie
 
-<img src="./img/Screenshot 2026-05-03 at 11.31.42.png" alt="" width="400px">
+<img src="./img/plan/Screenshot 2026-05-03 at 11.31.42.png" alt="" width="400px">
 
 wetter sjj
 
-<img src="./img/Screenshot 2026-05-03 at 11.39.16.png" alt="" width="400px">
+<img src="./img/plan/Screenshot 2026-05-03 at 11.39.16.png" alt="" width="400px">
 
 ### Inventar
 
 Strinlampe wäre noch geil, dann könnte ich auch am abend, bzw. in der Dunkelheit fahren.
 Evtl. weiteres Akkupack am Weg kaufen. Platz im Rucksack lassen für Essen.
-Schlafsack unten verstauen, weil seltener gebraucht.
-TODO: Liste der Kleidung machen. Schuhe evtl. unterwegs kaufen
+Schlafsack unten verstauen, weil seltener gebraucht. Schuhe evtl. unterwegs kaufen
+
+<img src="./img/plan/PXL_20260503_185848199.jpg" alt="" width="400px">
 
 ---
 
 ## Umsetzung
+
+FUUUUCK oida i kack mi so an aber gleichzeitig freu i mi. HAHA es wird soooo sick!!!!
 
 tbd
