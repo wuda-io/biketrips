@@ -23,21 +23,45 @@ ca. 100km / tag => ca. 6 tage
 - 4. Zenica, BIH (138 km)
 - 5. Sarajevo, BIH (74 km)
 
-TODO: Feinplanung mit den kleineren Orten, falls Navi ausfällt
-
 #### Feinplanung
 
-- Wien
+Feinplanung mit den kleineren Orten, falls Navi ausfällt, dann via Ortschilder navigieren
+
+- Wien Schönbrunn
+  - Eisenstadt
+  - Ödenburg (HU)
+  - Deutschkreuz
+  - Zsira
+  - Sarvar
+  - Kald
+  - Kissomlyo
+  - Duka
+  - Keled
+  - Szalapa
+  - Vindornyaszőlős
+  - Heviz
+- Keszthely
+  - Balatonszentgyörgy
+  - Somogysámson
+  - Nagyszakácsi
+  - Tapsony
+  - Böhönye
+  - Kutas
+  - Szabás
+  - Nagykorpád
+  - Görgeteg
+  - Csokonyavisonta
+  - Barcs
+  - Zrinj Lukački (CRO)
+  - Rušani
+  - Gradina
+  - Cabuna
+  - Sladojevci
+- Slatina
   - 1
   - 2
-  - 3
-  - 4
-  - 5
-  - 6
-  - 7
-  - 8
-  - 9
-- Keszthely
+  - 3...
+- Brod
 
 #### Rückreise
 
