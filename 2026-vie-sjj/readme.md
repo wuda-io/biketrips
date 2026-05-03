@@ -55,9 +55,9 @@ wetter sjj
 
 ### Inventar
 
-Strinlampe wäre noch geil, dann könnte ich auch am abend, bzw. in der Dunkelheit fahren.
+Stirnlampe wäre noch geil, dann könnte ich auch am abend, bzw. in der Dunkelheit fahren.
 Evtl. weiteres Akkupack am Weg kaufen. Platz im Rucksack lassen für Essen.
-Schlafsack unten verstauen, weil seltener gebraucht. Schuhe evtl. unterwegs kaufen
+Schlafsack unten verstauen, weil seltener gebraucht. Bessere Schuhe evtl. unterwegs kaufen.
 
 <img src="./img/plan/PXL_20260503_185848199.jpg" alt="" width="400px">
 

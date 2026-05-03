@@ -27,8 +27,7 @@ Dann geiler Weg nach Palmanova, den wunderschönen blauen Fluss entlang. Hab an 
 
 ### Tag 4
 
-Ich war noch komplett kaputt von der Nacht davor, da ich mich kaum erholen konnte. Hab mir eine Wassermelone gekauft und langsam gin dann auch der Durchfall und das Kotzen wieder weg und ich hatte wieder einen halbwegs brauchbaren Körper. Ich bin dann endlos weit auf dieser Drecksbrücke nach Grado in der prallen Sonne gefahren und war froh als der Scheiss vorbei war. Ich war dann am Meer und man konnte nirgends gscheid reingehen wegen diesen dummen Betonblöcken. Bin dann trozdem kurz reingesprungen und das war die reinste Erlösung. Bin danach im Park im Schatten eingeschlafen und hab den letzten Bus nach Triest verpasst.
-Musste also noch eine Nacht in Grado verbringen und war übelst angepisst. Dachte mir, scheiss drauf und hab am Meer geschlafen und am Abend einen Schuttle gebuch nach Salzburg.
+Ich war noch komplett kaputt von der Nacht davor, da ich mich kaum erholen konnte. Hab mir eine Wassermelone gekauft und langsam gin dann auch der Durchfall und das Kotzen wieder weg und ich hatte wieder einen halbwegs brauchbaren Körper. Ich bin dann endlos weit auf dieser Drecksbrücke nach Grado in der prallen Sonne gefahren und war froh als der Scheiss vorbei war. Ich war dann am Meer und man konnte nirgends gscheid reingehen wegen diesen dummen Betonblöcken. Bin dann trozdem kurz reingesprungen und das war die reinste Erlösung. Bin danach im Park im Schatten eingeschlafen und hab den letzten Bus nach Triest verpasst. Musste also noch eine Nacht in Grado verbringen und war übelst angepisst. Dachte mir, scheiss drauf und hab am Meer geschlafen und am Abend einen Schuttle gebuch nach Salzburg.
 
 Nächsten Tag mit dem Bus-Shuttle zurück nach Salzburg.
 
