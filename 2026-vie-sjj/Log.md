@@ -15,3 +15,9 @@ Hab heute so oft dran gedacht aufzugeben bzw. das ziel zu pivoten nach Zagreb un
 # tag 3
 
 heid war so GEIL oida!! i bin jetzt im maschinen modus angekommen. Input = Output. nur mehr kurze pausen. maximal auf ausdauer... könnte endlos so weiter fahren. bin im plan und jetzt in slatina. Kroatien is vieeeel geiler als Ungarn ka warum aber 1. die straßen viel besser, fast wie neu und ungarn das reinste shithole an Straßen!!! und 2. die Menschen san freundlicher. und 3. die Sprache macht sinn und ich verstehe bissl was. WTF is ungarisch oida i hab null verstanden und i glaub des is einfach random und jeder tut so als würde er sich verstehen. FUCK wetter war optimal, bewölkt und nicht soviel Wind. Auch weniger Höhenmeter glaub ich. War jedenfalls ein geiler Tag und hoffe morgen wirds auch so wie heute.
+
+# tag 4
+vormittag eegen, gut in der zeit, dann aufs naul gefallen, Krankenhaus nähen, am Abend BIH nach brod wie plan
+
+# tag 5
+war ok, sau müde, fast Draufg..n kkw 2min tunnej ..powernaps gemacht, am abend regen, und dann hotel in zenica
