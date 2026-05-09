@@ -21,3 +21,6 @@ vormittag eegen, gut in der zeit, dann aufs naul gefallen, Krankenhaus nähen, a
 
 # tag 5
 war ok, sau müde, fast Draufg..n kkw 2min tunnej ..powernaps gemacht, am abend regen, und dann hotel in zenica
+
+# tag 6
+Ich habs geschafft.
