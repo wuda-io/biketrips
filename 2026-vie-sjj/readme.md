@@ -82,7 +82,10 @@ Stirnlampe wäre noch geil, dann könnte ich auch am abend, bzw. in der Dunkelhe
 Evtl. weiteres Akkupack am Weg kaufen. Platz im Rucksack lassen für Essen.
 Schlafsack unten verstauen, weil seltener gebraucht. Bessere Schuhe evtl. unterwegs kaufen.
 
-<img src="./img/plan/PXL_20260503_185848199.jpg" alt="" width="400px">
+
+| vorher                               | nacher                                          |
+|--------------------------------------|-------------------------------------------------|
+| <img src="./img/plan/PXL_20260503_185848199.jpg" alt="" width="400px"> | <img src="./img/close/PXL_20260511_134218949.jpg" alt="" width="400px"> |
 
 ---
 
