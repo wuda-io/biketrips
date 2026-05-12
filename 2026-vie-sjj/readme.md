@@ -58,10 +58,9 @@ Feinplanung mit den kleineren Orten, falls Navi ausfällt, dann via Ortschilder 
   - Cabuna
   - Sladojevci
 - Slatina
-  - 1
-  - 2
-  - 3...
 - Brod
+- Zenica
+- Sarajevo
 
 #### Rückreise
 
@@ -90,5 +89,3 @@ Schlafsack unten verstauen, weil seltener gebraucht. Bessere Schuhe evtl. unterw
 ## Umsetzung
 
 FUUUUCK oida i kack mi so an aber gleichzeitig freu i mi. HAHA es wird soooo sick!!!!
-
-tbd
