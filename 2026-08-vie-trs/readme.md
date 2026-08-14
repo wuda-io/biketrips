@@ -13,9 +13,9 @@ ca. 110km / tag => ca. 5 tage
 
 #### Grob
 
-- 0. Wien
-- 1. Neunkirchen
-- 2. Leoben / Spielberg
-- 3. Ossiacher See / Villach
-- 4. Gemona / Udine
-- 5. Triest
+- Wien
+- Neunkirchen
+- Leoben / Spielberg
+- Ossiacher See / Villach
+- Gemona / Udine
+- Triest
