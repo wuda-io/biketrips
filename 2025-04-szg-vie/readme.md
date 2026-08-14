@@ -2,6 +2,8 @@
 
 ## Plan
 
+Planned start: 2025.04.24 10:00
+
 - Strecke: 300 km
 - Höhenmeter: 2200 hm
 
@@ -25,7 +27,7 @@ Wettervorhersage war schlecht aber bin trotzdem gefahren, weil es mir egal war u
 
 Ganzen Tag durchgepusht, wieder in Ybbs von der Polizei aufgehalten worden aber nur um mir zu sagen das ich da nicht fahren darf. Es hat geregnet und ich hab mich dann im Restaurant aufgewärmt, meine Akkus aufgeladen und meine Kleidung getrocknet, weil ich komplett nass war. Am Abend hab ich dann in einem alten Bus geschlafen in der Nähe von Loosdorf auf einem verlassenen Baugelände. Das war geil aber ziemlich unheimlich, aber konnte mich gut erholen und hatte wieder Energie.
 
-### Tag 3 
+### Tag 3
 
 Ich hab mich komplett verfahren weil Google Maps ultra schlecht für die Fahrrad Navigation war und teilweise Wanderrouten und verlatete Daten hatte. War dann irgendwo im Wald und hab mich gewaschen in einem Fluss was sehr gut getan hat. Danach bin ich dann über diesen letzen Berg/Hügel nach Wien.
 
@@ -34,3 +36,38 @@ Dann mit dem Zug zurück nach Salzburg.
 ## Recap
 
 ca. 100km / tag gehen
+
+## Route
+
+- Bergheim
+- Seekirchen
+- Neumarkt am Wallersee
+- Straßwalchen
+- Lambach
+- Steinerkirchen an der Traun
+- Kremsmünster
+- Sierning
+- Steyr -----
+- St Johann in Engstetten
+- Krenstetten
+- Aschbach-Markt
+- Hörstorf
+- Amstetten
+- St Georgen am Ybbsfelde
+- Neumarkt an der Ybbs
+- Ybbs an der Donau
+- Melk
+- Loosdorf
+- Prinzersdorf
+- St. Pölten -----
+- Herzogenburg
+- Weißenkirchen and der Perschling
+- Langmannersdorf
+- Atzenbrugg
+- Langenrohr
+- Tulln
+- St. Andrä-Wördern
+- Greifenstein => Brücke/schleuse
+- Korneuburg
+- Langenzersdorf
+- Wien
