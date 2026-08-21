@@ -9,10 +9,12 @@ i foa niewieder radl
 hab nu auf die Rauchfangkehrer Termin gewartet und rein gelassen. war nach 1min vorbei der Termin komplett useless, aber zum Glück gleich um 8.45 erledigt. Bin dann ca. um 9 los, Wien ist Katastrophe mit den scheiss Ampeln und Navigation chaos... Dauernd bremsen und Beschleunigen.. durchn 10. und dann glei paar mal verfahren, viel Energie und Zeit verschwendet aber habs nach Ungarn geschafft. Aber lang ned so weit wie geplant. Aufjedenfall mehr Zeit fürs reinkommen nächstes mal einplanen. vlt. nur 50km oder so. Hab an einer verlassenen Bar geschlafen und ein kleines Lagerfeuer gemacht und den Sonnenuntergang angeschaut.
 
 <p align="center">
-  <img style="height: 100px;" src="./img/start/PXL_20260503_100520970.jpg" alt=""/>
-  <img style="height: 100px;" src="./img/start/PXL_20260504_071441405.jpg" alt=""/>
-  <img style="height: 100px;" src="./img/start/PXL_20260503_185848199.jpg" alt=""/>
-  <img style="height: 100px;" src="./img/start/PXL_20260504_072116732.jpg" alt=""/>
+<img style="height: 100px;" src="./img/mid/PXL_20260504_081919841.jpg" alt=""/>
+<img style="height: 100px;" src="./img/mid/PXL_20260504_091023715.jpg" alt=""/>
+<img style="height: 100px;" src="./img/mid/PXL_20260504_144511050.jpg" alt=""/>
+<img style="height: 100px;" src="./img/mid/PXL_20260504_171220629.jpg" alt=""/>
+<img style="height: 100px;" src="./img/mid/PXL_20260504_171452073.jpg" alt=""/>
+<img style="height: 100px;" src="./img/mid/PXL_20260504_172511262.jpg" alt=""/>
 </p>
 
 # Tag 2: 2026-05-05
@@ -23,11 +25,34 @@ Hab heute so oft dran gedacht aufzugeben bzw. das ziel zu pivoten nach Zagreb un
 
 hab am abend an dem Balaton See geschlafen.
 
+<p align="center">
+<img style="height: 100px;" src="./img/mid/PXL_20260505_065940920.jpg" alt=""/>
+<img style="height: 100px;" src="./img/mid/PXL_20260505_102652174.jpg" alt=""/>
+<img style="height: 100px;" src="./img/mid/PXL_20260505_143132085.jpg" alt=""/>
+<img style="height: 100px;" src="./img/mid/PXL_20260505_143226424.jpg" alt=""/>
+<img style="height: 100px;" src="./img/mid/PXL_20260505_144604846.jpg" alt=""/>
+<img style="height: 100px;" src="./img/mid/PXL_20260505_174242476.jpg" alt=""/>
+<img style="height: 100px;" src="./img/mid/PXL_20260505_202154639.jpg" alt=""/>
+<img style="height: 100px;" src="./img/mid/PXL_20260505_204459576.jpg" alt=""/>
+</p>
+
 # Tag 3: 2026-05-06
 
 heid war so GEIL oida!! i bin jetzt im maschinen modus angekommen. Input = Output. nur mehr kurze pausen. maximal auf ausdauer... könnte endlos so weiter fahren. bin im plan und jetzt in slatina. Kroatien is vieeeel geiler als Ungarn ka warum aber 1. die straßen viel besser, fast wie neu und ungarn das reinste shithole an Straßen!!! und 2. die Menschen san freundlicher. und 3. die Sprache macht sinn und ich verstehe bissl was. WTF is ungarisch oida i hab null verstanden und i glaub des is einfach random und jeder tut so als würde er sich verstehen. FUCK wetter war optimal, bewölkt und nicht soviel Wind. Auch weniger Höhenmeter glaub ich. War jedenfalls ein geiler Tag und hoffe morgen wirds auch so wie heute.
 
 Hab am Abend bei der Gleisanlage geschlafen, es war regnerisch.
+
+<p align="center">
+<img style="height: 100px;" src="./img/mid/PXL_20260506_035238095.jpg" alt=""/>
+<img style="height: 100px;" src="./img/mid/PXL_20260506_035337251.jpg" alt=""/>
+<img style="height: 100px;" src="./img/mid/PXL_20260506_035352349.jpg" alt=""/>
+<img style="height: 100px;" src="./img/mid/PXL_20260506_055838253.jpg" alt=""/>
+<img style="height: 100px;" src="./img/mid/PXL_20260506_060000894.jpg" alt=""/>
+<img style="height: 100px;" src="./img/mid/PXL_20260506_062950426.jpg" alt=""/>
+<img style="height: 100px;" src="./img/mid/PXL_20260506_075506839.jpg" alt=""/>
+<img style="height: 100px;" src="./img/mid/PXL_20260506_142336781.jpg" alt=""/>
+<img style="height: 100px;" src="./img/mid/PXL_20260506_183019827.jpg" alt=""/>
+</p>
 
 # Tag 4: 2026-05-07
 
@@ -41,9 +66,39 @@ Ich hab gefragt ob ich radfahrne kann und sie meinte ja. Und dann bin ich weiter
 
 am Abend BIH nach brod wie plan hab in einem Erdhügel geschlafen und es war arschkalt und neblig.
 
+<p align="center">
+<img style="height: 100px;" src="./img/mid/PXL_20260507_043952937.jpg" alt=""/>
+<img style="height: 100px;" src="./img/mid/PXL_20260507_131119302.jpg" alt=""/>
+<img style="height: 100px;" src="./img/mid/PXL_20260507_131215570.jpg" alt=""/>
+<img style="height: 100px;" src="./img/mid/PXL_20260507_131309330.jpg" alt=""/>
+<img style="height: 100px;" src="./img/mid/PXL_20260507_131446910.jpg" alt=""/>
+<img style="height: 100px;" src="./img/mid/PXL_20260507_131732652.jpg" alt=""/>
+<img style="height: 100px;" src="./img/mid/PXL_20260507_131833093.jpg" alt=""/>
+<img style="height: 100px;" src="./img/mid/PXL_20260507_132020343.jpg" alt=""/>
+<img style="height: 100px;" src="./img/mid/PXL_20260507_132419500.jpg" alt=""/>
+<img style="height: 100px;" src="./img/mid/PXL_20260507_153206968.jpg" alt=""/>
+<img style="height: 100px;" src="./img/mid/PXL_20260507_164136610.jpg" alt=""/>
+<img style="height: 100px;" src="./img/mid/PXL_20260507_164339227.jpg" alt=""/>
+<img style="height: 100px;" src="./img/mid/PXL_20260507_170609524.jpg" alt=""/>
+<img style="height: 100px;" src="./img/mid/PXL_20260507_171040406.jpg" alt=""/>
+<img style="height: 100px;" src="./img/mid/PXL_20260507_181140404.jpg" alt=""/>
+<img style="height: 100px;" src="./img/mid/PXL_20260507_183043366.jpg" alt=""/>
+<img style="height: 100px;" src="./img/mid/PXL_20260507_183157770.jpg" alt=""/>
+<img style="height: 100px;" src="./img/mid/PXL_20260507_184733556.jpg" alt=""/>
+</p>
+
 # Tag 5: 2026-05-08
 
 war ok, sau müde, wegen Schlafmangel. Ich hab ja bis dahin jeden Tag draußen geschlafen. Ich hatte oft Halluzinationen, wegen der scheiss Übermüdung. Ich hab zum Beispiel einen Vogel in einen Baum fliegen sehen. Und dann schau ich zum Baum und der Vogel war nicht mehr da. Solche Sachen sind dann öfter passiert, und ich dachte ich muss mich unbedingt ausreichend erholen. Und auch wegen dem Unfall. Ich hab dann 2 Powernaps von je 15min gemacht, und dachte das ist eig. eine gute Strategie, weil es ist geil warm draußen untertags zu pennen anstatt in der Nacht wach zu liegen in der Kälte und sich bewegen muss oder anziehen um nicht zu erfrieren.
+
+<p align="center">
+<img style="height: 100px;" src="./img/mid/PXL_20260508_034521326.jpg" alt=""/>
+<img style="height: 100px;" src="./img/mid/PXL_20260508_100818814.jpg" alt=""/>
+<img style="height: 100px;" src="./img/mid/PXL_20260508_123001240.jpg" alt=""/>
+<img style="height: 100px;" src="./img/mid/PXL_20260508_140004692.jpg" alt=""/>
+<img style="height: 100px;" src="./img/mid/PXL_20260508_155445695.jpg" alt=""/>
+<img style="height: 100px;" src="./img/mid/PXL_20260508_164234099.jpg" alt=""/>
+</p>
 
 ## Der Tunnel
 
@@ -59,6 +114,28 @@ Bin dann erst um 10 weiter weil ich noch ein Frühstück genommen hatte. Ich hat
 
 Ich habs geschafft!!! Bin dann ins Hotel und hab mich dort gut erholt.
 
+<p align="center">
+<img style="height: 100px;" src="./img/mid/PXL_20260509_085828274.jpg" alt=""/>
+<img style="height: 100px;" src="./img/mid/PXL_20260509_100354552.jpg" alt=""/>
+<img style="height: 100px;" src="./img/mid/PXL_20260509_100609588.jpg" alt=""/>
+<img style="height: 100px;" src="./img/mid/PXL_20260509_104633411.jpg" alt=""/>
+<img style="height: 100px;" src="./img/mid/PXL_20260509_120541047.jpg" alt=""/>
+<img style="height: 100px;" src="./img/mid/PXL_20260509_140600921.jpg" alt=""/>
+<img style="height: 100px;" src="./img/mid/PXL_20260509_141126683.jpg" alt=""/>
+<img style="height: 100px;" src="./img/mid/PXL_20260509_141711638.jpg" alt=""/>
+<img style="height: 100px;" src="./img/mid/PXL_20260509_152503999.jpg" alt=""/>
+<img style="height: 100px;" src="./img/mid/PXL_20260509_170058742.jpg" alt=""/>
+<img style="height: 100px;" src="./img/mid/PXL_20260509_173411433.jpg" alt=""/>
+<img style="height: 100px;" src="./img/mid/PXL_20260509_191012782.jpg" alt=""/>
+<img style="height: 100px;" src="./img/mid/PXL_20260509_191236338.jpg" alt=""/>
+</p>
+
 # Tag 7: 2026-05-10
 
 Aufgewacht und das frühstück hat mich an die Türkei erinnert. Generell ist Bosnien ja sehr muslimisch und ich kannte ja viele Sachen schon von früheren Erfahrungen. Rückreise mit dem Bus von Sarajevo nach Zagreb für umgerechnet 40 Euro. Der Bus-Chef wollte mein Radl erst nicht mitnehmen und ich hab mit ihm diskutiert. Er meinte es kostet extra und es ist schon voll. Ich so: ich hab mein Bargeld bereits verschenkt. Hab davor noch Steak gegessen und viel trinkgeld gegeben hab den Rest noch verschenkt weil ich eh das Bargeld loswerden wollte. Und dann musste ich nochmal extra was abheben, hab ihm dann mehr als das doppelte gegeben weil ich pissed war. Der Bus ging dann um 22 Uhr bis 6 uhr in der früh und war sehr voll. Hab die meiste Zeit geschlafen und es war eig. echt ok. Von Zagreb dann mit dem Bus weiter nach Wien für ca. 30 Euro, was auch eine angenehme Fahrt war.
+
+<p align="center">
+<img style="height: 100px;" src="./img/mid/PXL_20260510_132404756.jpg" alt=""/>
+<img style="height: 100px;" src="./img/mid/PXL_20260510_133932607.jpg" alt=""/>
+<img style="height: 100px;" src="./img/mid/PXL_20260510_160242392.jpg" alt=""/>
+</p>
