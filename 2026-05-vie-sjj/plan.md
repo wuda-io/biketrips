@@ -12,7 +12,7 @@
 ca. 100km / tag => ca. 6 tage
 100km/d machbar, weil es hat sogar geregnet bei sbg - wien
 
-<img src="./img/plan/Screenshot 2026-05-03 at 11.35.03.png" alt="" width="400px">
+<img src="./img/start/Screenshot 2026-05-03 at 11.35.03.png" alt="" width="400px">
 
 #### Grob (sehr optimistisch)
 
@@ -70,11 +70,11 @@ TBD (am Weg überlegen)
 
 wetter vie
 
-<img src="./img/plan/Screenshot 2026-05-03 at 11.31.42.png" alt="" width="400px">
+<img src="./img/start/Screenshot 2026-05-03 at 11.31.42.png" alt="" width="400px">
 
 wetter sjj
 
-<img src="./img/plan/Screenshot 2026-05-03 at 11.39.16.png" alt="" width="400px">
+<img src="./img/start/Screenshot 2026-05-03 at 11.39.16.png" alt="" width="400px">
 
 ### Inventar
 
@@ -82,10 +82,9 @@ Stirnlampe wäre noch geil, dann könnte ich auch am abend, bzw. in der Dunkelhe
 Evtl. weiteres Akkupack am Weg kaufen. Platz im Rucksack lassen für Essen.
 Schlafsack unten verstauen, weil seltener gebraucht. Bessere Schuhe evtl. unterwegs kaufen.
 
-
-| vorher                               | nacher                                          |
-|--------------------------------------|-------------------------------------------------|
-| <img src="./img/plan/PXL_20260503_185848199.jpg" alt="" width="400px"> | <img src="./img/close/PXL_20260511_134218949.jpg" alt="" width="400px"> |
+| vorher                                                                  | nacher                                                                  |
+| ----------------------------------------------------------------------- | ----------------------------------------------------------------------- |
+| <img src="./img/start/PXL_20260503_185848199.jpg" alt="" width="400px"> | <img src="./img/close/PXL_20260511_134218949.jpg" alt="" width="400px"> |
 
 ---
 

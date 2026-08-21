@@ -91,6 +91,14 @@ am Abend BIH nach brod wie plan hab in einem Erdhügel geschlafen und es war ars
 
 war ok, sau müde, wegen Schlafmangel. Ich hab ja bis dahin jeden Tag draußen geschlafen. Ich hatte oft Halluzinationen, wegen der scheiss Übermüdung. Ich hab zum Beispiel einen Vogel in einen Baum fliegen sehen. Und dann schau ich zum Baum und der Vogel war nicht mehr da. Solche Sachen sind dann öfter passiert, und ich dachte ich muss mich unbedingt ausreichend erholen. Und auch wegen dem Unfall. Ich hab dann 2 Powernaps von je 15min gemacht, und dachte das ist eig. eine gute Strategie, weil es ist geil warm draußen untertags zu pennen anstatt in der Nacht wach zu liegen in der Kälte und sich bewegen muss oder anziehen um nicht zu erfrieren.
 
+## Der Tunnel
+
+Jedenfalls kam ich zu einem Tunnel auf der M7 oder wie die Autostraße da hieß und ich musste durch einen Tunnel wo keine Radfahrer durch durften. Und ich hatte kein Licht am Radl und der Tunnel war Stockdunkel, ich wusste auch nicht wie lang er ist. Jedenfalls dachte ich scheiss drauf und bin einfach reingefahren, während ich drin war, dachte ich nur HOLY FUCK das war eine dumme Idee!!! Ich hab nix gesehen und hinter mir kamen Autos und haben mich auch erst im letzten Moment gesehen, und mich nicht erwartet und gehupt oder verrissen. Ich hörte hinter mir einen fetten LKW und bin dann in so eine fuckking Pannenbucht gesprungen kurz bevor der LKW kam. FFUUUUUUCK, der hat mich nichtmal wahrgenommen und ich hatte so viel Glück hahaha!!! Scheisse ich dachte nur, ich hab so Glück und bin so dumm. Hab dann kurz gewartet bis keine Autos mehr kamen weil ich das Ende des Tunnels sehen konnte und bin dann schnell raus und bin stehen geblieben und hab komplett gezittert und mich erstmal bei Gott bedankt.
+
+Es hat dann am Abend nochmal sehr geregnet, und es kam wieder so ein Tunnel. Ich hab mich dann wo untergestellt. Es kam auch ein Typ mit dem Motorrad und wir haben bissl geredet und er war sehr nett, aber im Stress wegen dem Regen und hat sich seine Regenkombo angezogen. Wir haben Insta ausgetauscht und ich hab gesagt ich schreib ihm wenn ich in Sarajevo ankomme.
+
+Ich hab dann eine geile Location zum Pennen gefunden mit so rostigen verlassenen Zügen aber es hat geregnet und ich musste mich trockenen und erholen. Am Abend bin ich dann in Zenica in ein Hotel, war ganz ok und der alte Herr an der Rezeption war sehr nett.
+
 <p align="center">
 <img style="height: 100px;" src="./img/mid/PXL_20260508_034521326.jpg" alt=""/>
 <img style="height: 100px;" src="./img/mid/PXL_20260508_100818814.jpg" alt=""/>
@@ -99,14 +107,6 @@ war ok, sau müde, wegen Schlafmangel. Ich hab ja bis dahin jeden Tag draußen g
 <img style="height: 100px;" src="./img/mid/PXL_20260508_155445695.jpg" alt=""/>
 <img style="height: 100px;" src="./img/mid/PXL_20260508_164234099.jpg" alt=""/>
 </p>
-
-## Der Tunnel
-
-Jedenfalls kam ich zu einem Tunnel auf der M7 oder wie die Autostraße da hieß und ich musste durch einen Tunnel wo keine Radfahrer durch durften. Und ich hatte kein Licht am Radl und der Tunnel war Stockdunkel, ich wusste auch nicht wie lang er ist. Jedenfalls dachte ich scheiss drauf und bin einfach reingefahren, während ich drin war, dachte ich nur HOLY FUCK das war eine dumme Idee!!! Ich hab nix gesehen und hinter mir kamen Autos und haben mich auch erst im letzten Moment gesehen, und mich nicht erwartet und gehupt oder verrissen. Ich hörte hinter mir einen fetten LKW und bin dann in so eine fuckking Pannenbucht gesprungen kurz bevor der LKW kam. FFUUUUUUCK, der hat mich nichtmal wahrgenommen und ich hatte so viel Glück hahaha!!! Scheisse ich dachte nur, ich hab so Glück und bin so dumm. Hab dann kurz gewartet bis keine Autos mehr kamen weil ich das Ende des Tunnels sehen konnte und bin dann schnell raus und bin stehen geblieben und hab komplett gezittert und mich erstmal bei Gott bedankt.
-
-Es hat dann am Abend nochmal sehr geregnet, und es kam wieder so ein Tunnel. Ich hab mich dann wo untergestellt. Es kam auch ein Typ mit dem Motorrad und wir haben bissl geredet und er war sehr nett, aber im Stress wegen dem Regen und hat sich seine Regenkombo angezogen. Wir haben Insta ausgetauscht und ich hab gesagt ich schreib ihm wenn ich in Sarajevo ankomme.
-
-Ich hab dann eine geile Location zum Pennen gefunden mit so rostigen verlassenen Zügen aber es hat geregnet und ich musste mich trockenen und erholen. Am Abend bin ich dann in Zenica in ein Hotel, war ganz ok und der alte Herr an der Rezeption war sehr nett.
 
 # Tag 6: 2026-05-09
 
