@@ -8,10 +8,12 @@ i foa niewieder radl
 
 hab nu auf die Rauchfangkehrer Termin gewartet und rein gelassen. war nach 1min vorbei der Termin komplett useless, aber zum Glück gleich um 8.45 erledigt. Bin dann ca. um 9 los, Wien ist Katastrophe mit den scheiss Ampeln und Navigation chaos... Dauernd bremsen und Beschleunigen.. durchn 10. und dann glei paar mal verfahren, viel Energie und Zeit verschwendet aber habs nach Ungarn geschafft. Aber lang ned so weit wie geplant. Aufjedenfall mehr Zeit fürs reinkommen nächstes mal einplanen. vlt. nur 50km oder so. Hab an einer verlassenen Bar geschlafen und ein kleines Lagerfeuer gemacht und den Sonnenuntergang angeschaut.
 
-<img style="height: 100px;" src="./img/start/PXL_20260503_100520970.jpg" alt=""/>
-<img style="height: 100px;" src="./img/start/PXL_20260504_071441405.jpg" alt=""/>
-<img style="height: 100px;" src="./img/start/PXL_20260503_185848199.jpg" alt=""/>
-<img style="height: 100px;" src="./img/start/PXL_20260504_072116732.jpg" alt=""/>
+<p align="center">
+  <img style="height: 100px;" src="./img/start/PXL_20260503_100520970.jpg" alt=""/>
+  <img style="height: 100px;" src="./img/start/PXL_20260504_071441405.jpg" alt=""/>
+  <img style="height: 100px;" src="./img/start/PXL_20260503_185848199.jpg" alt=""/>
+  <img style="height: 100px;" src="./img/start/PXL_20260504_072116732.jpg" alt=""/>
+</p>
 
 # Tag 2: 2026-05-05
 
