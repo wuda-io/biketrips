@@ -4,8 +4,8 @@
 
 - Strecke: 570 km
 - Höhenmeter: 3780 hm
-- geplanter start: POSPONED **2026-08-23** (So.) HYPED!!!!!
-- geplantes ende: ca. 2026-08-27
+- geplanter start: **2026-08-23** (Sun)
+- geplantes ende: **2026-08-27** (Thu)
 
 ### Route
 
@@ -23,3 +23,5 @@ ca. 110km / tag => ca. 5 tage
 | **Gesamt**   | **Wien → Triest**       | **~485 km** | **~3.600 hm**         | **5 Tage Tour**                                                |
 
 - **Navigation:** Hauptsächlich Orientierung am **EuroVelo 9** (Wien bis Maribor/Ljubljana).
+
+## Inventar
