@@ -4,7 +4,7 @@
 
 - Strecke: 570 km
 - Höhenmeter: 3780 hm
-- geplanter start: 2026-08-22 (Sa.)
+- geplanter start: POSPONED **2026-08-23** (So.) HYPED!!!!!
 - geplantes ende: ca. 2026-08-27
 
 ### Route
